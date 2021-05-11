@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @DVCPOWER
-- 👀 I’m interested in action shooting sports
+- 👀 I’m interested in IPSC and cycling sports
 - 🌱 I’m currently learning to sing a song
 - 💞️ I’m looking to collaborate on my activities
 - 📫 How to reach me ig dvcpower
